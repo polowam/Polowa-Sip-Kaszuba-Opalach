@@ -1,1 +1,1 @@
-# Polowa-Sip-Kaszuba-Opalach
+# zadania6-Polowa
